@@ -51,7 +51,8 @@ Quando Romeu descobriu o que Julieta havia feito, seu mundo desabou. Incapaz de 
 A tragédia de Romeu e Julieta serviu como um despertar para ambas as famílias. Confrontados com a perda de seus filhos, os Montagues e os Capuletos finalmente perceberam o quão fútil e
 destrutiva era sua rivalidade. Em honra ao amor e sacrifício de Romeu e Julieta, as famílias finalmente fizeram as pazes, jurando nunca mais permitir que o ódio e a competição os
 separassem.
-Assim, mesmo em um mundo moderno, a história de Romeu e Julieta permanece um poderoso lembrete do poder do amor e das consequências trágicas da inimizade e intolerância."![Default_Em_uma_cidade_moderna_e_vibrante_Romeu_e_Julieta_eram_0 (1)](https://github.com/user-attachments/assets/b43ce9ea-bb63-46a6-bc36-0a2c4d7498dd)
+Assim, mesmo em um mundo moderno, a história de Romeu e Julieta permanece um poderoso lembrete do poder do amor e das consequências trágicas da inimizade e intolerância."!
+[Default_Em_uma_cidade_moderna_e_vibrante_Romeu_e_Julieta_eram_0 (1)](https://github.com/user-attachments/assets/b43ce9ea-bb63-46a6-bc36-0a2c4d7498dd)
 
 
 
